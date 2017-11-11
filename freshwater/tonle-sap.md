@@ -15,5 +15,5 @@ Preservation of Wetlands is becoming more and more vital as they decrease in siz
 - Furthermore,the farmland in the surrounding area is quite fertile, with nutrient-rich sediment form the Tonle Sap being deposited on the floodplain.
 
 ## Disadvantages
-- Although, the Tonle Sap also brings many negatives to teh area. 67% of the water  comes from the River Mekong - only 33% comes from upstream. This causes the Tonle Sap to periodically empty itself.
+- Although, the Tonle Sap also brings many negatives to the area. 67% of the water  comes from the River Mekong - only 33% comes from upstream. This causes the Tonle Sap to periodically empty itself.
 - Drowning has also become the second most common cause of death for children. Half of all children in the area cannot swim. In addition, new motor boats are overturning older style paddle boats at an increasing rate.
