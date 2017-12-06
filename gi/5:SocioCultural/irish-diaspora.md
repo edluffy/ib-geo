@@ -53,4 +53,7 @@
 
 # The role of Irish Diasporas
 ## Preserving their culture in the USA
+- In the USA, the Irish are largely perceived as hard workers.
+- Most notably they are associated with the positons of police officers, firefighters, Roman Catholic Church leaders and politicians in the largest Irish American communities are in Chicago, Boston, New York City, Baltimore, Philadelphia, Kansas City and Savannah, Georgia. Each city has an annual St Patricks day parade, with Savannah having the largest. At State level, Texas has the largest number of Irish Americans. According to the 1990 US Census, Arkansas listed 9.5% of the population as Irish descendent, primarily located in the south-east part of the state. In percentage terms, Boston is the most Irish city in the USA, and Massachusetts the most Irish State.
+
 ## Adoption of their traits by their hosts
